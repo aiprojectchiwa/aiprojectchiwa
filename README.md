@@ -1,4 +1,4 @@
-[![MasterHead](https://assets.kompasiana.com/items/album/2022/09/22/images-632c15fc08a8b517031d5bb2.jpep)](https://www.instagram.com/theaitbcraft/)
+[![MasterHead](https://assets.kompasiana.com/items/album/2022/09/22/images-632c15fc08a8b517031d5bb2.jpeg)](https://www.instagram.com/theaitbcraft/)
 
 <h1 align="center">Hi 👋, I'm Ai</h1>
 <h3 align="center">University of Gabut Indonesia</h3>
