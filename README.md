@@ -13,7 +13,7 @@
 
 - 🌱 I’m currently learning **Artificial Intelligence**
 
-- 📫 How to reach me **aiproject.theaitbcraft@gmail.com**
+- 📫 How to reach me **workspace@chiwa.my.id**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
